@@ -1,2 +1,1 @@
 # Tran-Duc
-The shy
